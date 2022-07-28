@@ -1,4 +1,6 @@
 ### Hello World, I'm Valter 👋
 
 
-![heisencat (1)](https://user-images.githubusercontent.com/86700996/181462125-69ad38c6-ba67-486b-8c7b-4f8993657eaa.png)
+![heisencat (3)](https://user-images.githubusercontent.com/86700996/181462627-458a3c05-e4f9-4e4d-9c18-72773f40730d.png)
+
+
